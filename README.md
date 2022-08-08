@@ -38,6 +38,9 @@
 
 ![Donat icon](https://i.imgur.com/oj8nf8m.png)
 
+Для жителейна из России, можете поделиться криптой:
+USTD(TRC20) TXytLoo3h6gJPnMYe4zQ9921CpFgNaDCW7
+
 ## Социальные сети
 
 Вы можете задать вопрос по коммерческому использованию продукта на электронную почту savinkirillnick@gmail.com или в Телеграм @savinkirillnick
