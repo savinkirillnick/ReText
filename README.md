@@ -38,8 +38,7 @@
 
 ![Donat icon](https://i.imgur.com/oj8nf8m.png)
 
-Для жителейна из России, можете поделиться криптой:
-USTD(TRC20) TXytLoo3h6gJPnMYe4zQ9921CpFgNaDCW7
+Для жителей не из России, можете поделиться криптой: **USTD(TRC20) TXytLoo3h6gJPnMYe4zQ9921CpFgNaDCW7**
 
 ## Социальные сети
 
